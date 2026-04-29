@@ -45,7 +45,7 @@
 </h2>
 
 <p align="center">
-<img src="https://cloudcover.neocities.org/toybox/characters/panicpuppyDA13.gif" width="400" height="400"></p>
+<img src="https://lallys.carrd.co/assets/images/gallery01/d66257b2.gif?v=292bc4ff" alt="Untitled" height="400"></p>
 <p align="center">
 
 <p align="center">
