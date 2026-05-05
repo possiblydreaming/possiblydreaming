@@ -90,7 +90,7 @@ Going to a cosplay convention is one of my goals, alongside with the fact that a
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
 I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.
-(But if you're curious about why I'm mainly afk: I love baking.)
+(But if you're curious about why I'm mainly afk: I love baking, and I'd be glad to share ideas, etc, with you!
 <br><br>Friend requests are a-okay! Hello!
 
 <br>I tend to disconnect due to connection issues, I don't leave out of the blue.
@@ -104,13 +104,9 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>To do</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
 <p align="center">
 
-* Create props for the cosplay.
-
 * Make stamps/graphics for Neocities as rescourses for public use.
-  - Elliot/Mia Builder stamps
-  - C00LK1D stamps
 
-* New profile picture. (Current)
+* New profile picture.
   - ~~Sketch~~
   - Colors (50&)
   - Finish
