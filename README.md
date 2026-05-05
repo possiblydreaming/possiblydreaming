@@ -154,7 +154,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 </p>
 
 <p align="center">
-<img src="https://pixelsafari.neocities.org/stamps/more/hottopic.gif"/> <img src="https://pixelsafari.neocities.org/stamps/mcr.png"/><img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery10/0110d122.jpg?v=19c6e946" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery01/187e80cf.png?v=2e2c9a9d" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery02/3223634e.png?v=2e2c9a9d" alt="Untitled"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/hottopic.gif"/> <img src="https://pixelsafari.neocities.org/stamps/mcr.png"/><img src="https://supplies.ju.mp/assets/images/gallery01/187e80cf.png?v=2e2c9a9d" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery02/3223634e.png?v=2e2c9a9d" alt="Untitled"/>
 <img src="https://oddityz.neocities.org/stamps/pink/ilovebows.png"/>
 <img src="https://oddityz.neocities.org/stamps/bw/pandaluv.png"/>
 <img src="https://pixelsafari.neocities.org/stamps/icollectplushies.png"/>
