@@ -17,7 +17,7 @@
     <summary><b>Other socials!</b></summary>
     <br>
     (https://spottedpandaa.straw.page)</p>
-    Send me messages as an annonymous user! Even drawings!
+    Send me messages as an anonymous user! (Even drawings!)
   </p>
 
 <div align="center">
