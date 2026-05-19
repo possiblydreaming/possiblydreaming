@@ -1,4 +1,8 @@
 <p align="center">
+5|18|26 . This page is still not done, but take a look!
+</p>
+
+<p align="center">
 <img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
 </p>
 
