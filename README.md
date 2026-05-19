@@ -1,5 +1,5 @@
 <p align="center">
-5|18|26 . This page is still not done, but take a look!
+5|18|26 . This page is still not done, but take a look! Thanks for checking my profile out!
 </p>
 
 <p align="center">
@@ -21,22 +21,18 @@
     <summary><b>Other socials!</b></summary>
     <br>
     (https://spottedpandaa.straw.page)</p>
-    Send me messages as an anonymous user! (Even drawings!)
+    Send me messages and drawings as an anonymous user!
   </p>
 
 <div align="center">
   <br>
     (https://x.com/Spottedpan35124)  </p>
-    Check out my art and future animations! (Unfortunately, there is nothing. Posting later!)
+    Check out my art and future animations! (Unfortunately, there is nothing, but I'll be posting later!)
   </p>
     
     
-    
-    
-    </p>
   </details>
 </div>
-
 
 
 <p align="center">
@@ -68,9 +64,9 @@ Artist/Animator
       <img src="https://media.tenor.com/I7K5vfzDLggAAAAM/akita-neru-akita.gif" width="200" alt="Description">
     </td>
     <td valign="middle">
-I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. I'm hoping to open commissions whenever I get an opportunity. <br><br>
+I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. Louis Wain is my inspiration, one of my favorite pieces from him is Blue Cat. My biggest goal is to build an art portfolio, and create an indie show whenever there's an opportunity. <br><br>
 
-When I’m not drawing, I’m usually sewing or adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
+When I’m not drawing, I’m usually sewing/crafting or/and adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
     </td>
   </tr>
 </table>
@@ -80,9 +76,11 @@ When I’m not drawing, I’m usually sewing or adding to my collections. I love
 <table>
   <tr>
     <td valign="middle">
-I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My current favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, currently working on a Kuromi cosplay and so far, I'm mainly working on the accessories for her, Gloomy Bear may be my next project. <br><br>
+I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My current favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, and I'm currently working on a Kuromi cosplay and so far, the accessories are still in progress for her, Gloomy Bear may be my next project pretty soon. <br><br>
 
 The Pokémon series/games, Dragon Ball, and the Stargate series are currently on my to watch/play list!
+
+Astronomy and coding are my special interests right now! I usually study and write about exo-planets and stars, even through telescopes that I had gotten for my birthdays (too bad I can't see exo-planets), which I also have four so far too! For coding, I've been doing it since 2022 and so far, I've been using those skills to create profiles whenever I'm bored, they're currently sitting in my private respositories.
     </td>
     <td>
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
@@ -93,9 +91,9 @@ The Pokémon series/games, Dragon Ball, and the Stargate series are currently on
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
-I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.
-(But if you're curious about why I'm mainly afk: I love baking, and I'd be glad to share ideas, etc, with you!
-<br><br>Friend requests are a-okay! Hello!
+I'm mainly off.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.
+(But if you're curious about why I'm mainly off: I love baking, and I'd be glad to share ideas, etc, with you!
+<br><br>Friend requests are a-okay! I'll always appear as Luna on your friend list, no confusion!
 
 <br>I tend to disconnect due to connection issues, I don't leave out of the blue.
 
@@ -118,12 +116,13 @@ Anyways, I'm more than happy to talk. I'll see you there!
 * Art for introduction section and end of the profile.
 
 * Animation.
+
   - PN.
   - ISFYF.
   - ATP.
   - AYME.
 
-* Create a art commission sheet.
+* Create an art commission sheet.
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
@@ -184,4 +183,8 @@ Anyways, I'm more than happy to talk. I'll see you there!
 
 <p align="center">
 <img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
+</p>
+
+<p align="center">
+Every graphic in this README.md should have their credits inside, but there may be some graphics will need a two-step to find their artists, such as navigating and checking the embedded links within the desired graphic in the origin site, depending on if the chosen site has not or had hot-linked their graphics.
 </p>
