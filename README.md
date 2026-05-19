@@ -76,9 +76,9 @@ When I’m not drawing, I’m usually sewing or adding to my collections. I love
 <table>
   <tr>
     <td valign="middle">
-I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My current favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, currently working on a Kuromi cosplay and so far, I'm mainly working on the accessories for her, Gloomy Bear may be my next project.<br><br>
+I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My current favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, currently working on a Kuromi cosplay and so far, I'm mainly working on the accessories for her, Gloomy Bear may be my next project. <br><br>
 
-Going to a cosplay convention is one of my goals, alongside with the fact that animated shows and movies have been inspiring me to keep creating projects, just of any kind!
+The Pokémon series/games, Dragon Ball, and the Stargate series are currently on my to watch/play list!
     </td>
     <td>
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
@@ -124,6 +124,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
+
 <p align="center>
 <img src="https://blinkies.crd.co/assets/images/gallery25/a4732b43.gif?v=f551d29f" alt="Untitled"/><img src="https://blinkies.crd.co/assets/images/gallery03/c55deaa6.gif?v=f551d29f" alt="Untitled"/><img src="https://oddityz.neocities.org/blinkies/pink/icecreamisevil.gif"/><img src="https://oddityz.neocities.org/blinkies/pink/sometimesijustwanttoscream.gif"/>
 <img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
