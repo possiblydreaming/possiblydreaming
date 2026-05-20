@@ -106,12 +106,10 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%"><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" alt="Untitled"/><img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%">
 </p>
 <p align="center">
-<img src="https://f4.bcbits.com/img/a3304047595_10.jpg" alt="Nothing&#39;s New | Rio Romeo" width="25%">
-<img src="https://i1.sndcdn.com/artworks-6uWmWCyntCHGksz9-GlqDQg-t500x500.jpg" alt="Listen to SALES - Renee (ZCKSMTH Remix) by ZCKSMTH in goin nutz playlist  online for free on SoundCloud" width="25%">
-<img src="https://i1.sndcdn.com/artworks-000136878751-1xnesj-t500x500.jpg" alt="Stream FANTASTIC PHANTASM by PengoSolvent | Listen online for free on  SoundCloud" width="25%">
+<img width="1100" height="370" alt="image" src="https://github.com/user-attachments/assets/55d1f981-b44b-4135-8d16-2679543cfdb3" />
 </p>
 <p align="center">
-<pre>              Nothing's New - Rio Romeo           Renee - Sales       Fantastic Phantasm - PengoSolvent</pre>
+              Nothing's New - Rio Romeo | Renee - Sales | Fantastic Phantasm - PengoSolvent
 </p>
 
 <p align="center">
