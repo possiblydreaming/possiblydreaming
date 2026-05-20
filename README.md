@@ -52,7 +52,11 @@ This page is recommended for laptops/computers. For mobile users, try going on d
 <p align="center">
 
 <p align="center">
-Artist/Animator
+Luna
+</p>
+
+<p align="center">
+  Artist/Animator
 </p>
 
 <p align="center">
@@ -79,7 +83,7 @@ When I’m not drawing, I’m usually sewing/crafting or/and adding to my collec
 <table>
   <tr>
     <td valign="middle">
-I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My current favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, and I'm currently working on a Kuromi cosplay and so far, the accessories are still in progress for her, Gloomy Bear may be my next project pretty soon. <br><br>
+I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, and I'm currently working on a Kuromi cosplay and so far, Gloomy Bear may be my next project pretty soon. <br><br>
 
 The Pokémon series/games, Dragon Ball, and the Stargate series are currently on my to watch/play list!
 
@@ -94,110 +98,20 @@ Astronomy and coding are my special interests right now! I usually study and wri
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
-I'm mainly off.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.
-(But if you're curious about why I'm mainly off: I love baking, and I'd be glad to share ideas, etc, with you!
-<br><br>Friend requests are a-okay! I'll always appear as Luna on your friend list, no confusion!
 
-<br>I tend to disconnect due to connection issues, I don't leave out of the blue.
+<img align="right" src="https://github.com/user-attachments/assets/2d73efcd-5f18-429a-a8e7-297f9443613e" alt="image" width="24%"/>
 
-Anyways, I'm more than happy to talk. I'll see you there!
-<img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
-<p align="center">
+I'm always below the cafe! Sometimes at the Spawn or inside the cafe.
+
+I'm mainly sometimes off.. (away status, +1 minute), or really busy (busy status, +7 minutes), expect late replies. Whispering me is preferred so I can get back to you easier.
+(But if you're curious about why I'm mainly off: I love baking.)
+<br><br>Friend requests are a-okay! As long as I know you.
+<br><br>I tend to disconnect due to connection issues, I don't leave out of the blue.
+
+Anyways, I'm more than happy to talk. I'll see you there! <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
+
+<br><br><p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
-</p>
-<p align="center">
-<img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%"><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" alt="Untitled"/><img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%">
-</p>
-<p align="center">
-<img width="1100" height="370" alt="image" src="https://github.com/user-attachments/assets/55d1f981-b44b-4135-8d16-2679543cfdb3" />
-</p>
-<p align="center">
-              Nothing's New - Rio Romeo | Renee - Sales | Fantastic Phantasm - PengoSolvent
-</p>
-
-<p align="center">
-<img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%"><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" alt="Untitled"/><img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%">
-</p>
-<p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
-</p>
-
-<p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>To do</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
-<p align="center">
-
-* Make stamps/graphics for Neocities as rescourses for public use.
-
-* New profile picture.
-  - ~~Sketch~~
-  - Colors (50&)
-  - Finish
-
-* Art for introduction section and end of the profile.
-
-* Carrd profile.
-
-* Create an art commission sheet.
-
-<p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
-</p>
-
-<p align="center>
-<img src="https://blinkies.crd.co/assets/images/gallery25/a4732b43.gif?v=f551d29f" alt="Untitled"/><img src="https://blinkies.crd.co/assets/images/gallery03/c55deaa6.gif?v=f551d29f" alt="Untitled"/><img src="https://oddityz.neocities.org/blinkies/pink/icecreamisevil.gif"/><img src="https://oddityz.neocities.org/blinkies/pink/sometimesijustwanttoscream.gif"/>
-<img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
-<img src="https://adriansblinkiecollection.neocities.org/g13.gif"/>
-<img src="https://graphic.neocities.org/huhh.gif"/>
-<img src="https://pixelsafari.neocities.org/blinkies/animal/batmoon.gif"/>
-<img src="https://pixelsafari.neocities.org/blinkies/candy2.gif"/>
-<img src="https://y2k.neocities.org/blinkiez/tumblr_p1yz3hCS6m1weku4wo6_250.gif"/>
-<img src="https://pixel-woods.neocities.org/images/blinkies/gloomybear.gif"/>
-<img src="https://loleah.neocities.org/graphics/blinkies/buddies.gif" alt="aj let&#39;s be buddies"/>
-<img src="https://petrapixel.neocities.org/assets/img/blinkies/blinkies/b%20(2).gif" alt="Blinkie: I love Glitter"/>
-<img src="https://blinkie-net.neocities.org/blinkies/8/Pizza.gif"/>
-<img src="https://blinkie-net.neocities.org/blinkies/11/s_kuromi.gif"/>
-<img src="https://pixelbank.neocities.org/blinkies/book_worm.gif"/>
-<img src="https://pixelbank.neocities.org/blinkies/irlraccoon.gif"/>
-<img src="https://pixelbank.neocities.org/blinkies/lpscollector.gif"/>
-<img src="https://drive.google.com/thumbnail?id=1-emIIGoqxNbbgLyL7bYjve4ByxMhSdoW" alt="blinkie"/>
-<img src="https://wowzow.neocities.org/blinkie/pearlieprincessontumblr06.gif"/>
-</p>
-
-
-
-
-<p align="center">
-<img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
-</p>
-
-</p>
-
-<p align="center">
-<img src="https://pixelsafari.neocities.org/stamps/more/hottopic.gif"/> <img src="https://pixelsafari.neocities.org/stamps/mcr.png"/><img src="https://supplies.ju.mp/assets/images/gallery01/187e80cf.png?v=2e2c9a9d" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery02/3223634e.png?v=2e2c9a9d" alt="Untitled"/>
-<img src="https://oddityz.neocities.org/stamps/pink/ilovebows.png"/>
-<img src="https://oddityz.neocities.org/stamps/bw/pandaluv.png"/>
-<img src="https://pixelsafari.neocities.org/stamps/icollectplushies.png"/>
-<img src="https://pixelsafari.neocities.org/stamps/bunny9.gif"/>
-<img src="https://pixelsafari.neocities.org/stamps/ilovecrows.gif"/>
-<img src="https://pixelsafari.neocities.org/stamps/bunny6.gif"/>
-<img src="https://y2k.neocities.org/stamps/tumblr_inline_mr1k13DUYS1qz4rgp.png"/>
-<img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lbupjD71v11djx_1280.gif"/>
-<img src="https://y2k.neocities.org/stamps/tumblr_pdtswyY1sp1wpplaao6_250.jpg"/>
-<img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif"/>
-<img src="https://pixel-woods.neocities.org/images/stamps/purplestar.png"/>
-<img src="https://futurefishy.neocities.org/assets/stamps/panda.png" alt="ikea baby panda teddy on abstract pink background stamp"/>
-<img src="https://cadeion.neocities.org/Assets/Other%20Stamps/25/lps.gif" alt="littlest pet shop logo next to a panda figure"/>
-<img src="https://cupcakesthebulldog.neocities.org/layout%20pics/Stamps/stamps/accat.gif" alt="Punchy gif stamp"/>
-<img src="https://blinkie-net.neocities.org/Stamps/Pp/strawberries.png"/>
-<img src="https://blinkie-net.neocities.org/Stamps/4/mnr.drach.png"/>
-<img src="https://blinkie-net.neocities.org/Stamps/8/Neapolitan.jpg"/>
-<img src="https://pixelbank.neocities.org/stamp/15.png"/>
-<img src="https://favicons.neocities.org/images/boxes/white%20moon.png"/>
-
-</p>
-
-<p align="center">
-<img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
 </p>
 
 <p align="center">
