@@ -3,6 +3,9 @@
 </p>
 
 <p align="center">
+This page is recommended for laptops/computers. For mobile users, try going on desktop mode in your settings!
+</p>
+<p align="center">
 <img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
 </p>
 
