@@ -109,7 +109,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://i1.sndcdn.com/artworks-000136878751-1xnesj-t500x500.jpg" alt="Stream FANTASTIC PHANTASM by PengoSolvent | Listen online for free on  SoundCloud" width="25%">
 </p>
 <p align="center">
-<pre>               Nothing's New - Rio Romeo            Renee - Sales         Fantastic Phantasm - PengoSolvent</pre>
+<pre>              Nothing's New - Rio Romeo            Renee - Sales       Fantastic Phantasm - PengoSolvent</pre>
 </p>
 
 <p align="center">
