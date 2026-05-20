@@ -132,12 +132,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 
 * Art for introduction section and end of the profile.
 
-* Animation.
-
-  - PN.
-  - ISFYF.
-  - ATP.
-  - AYME.
+* Carrd profile.
 
 * Create an art commission sheet.
 
