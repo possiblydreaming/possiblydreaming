@@ -102,6 +102,16 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
+
+<p align="center">
+<img src="https://f4.bcbits.com/img/a3304047595_10.jpg" alt="Nothing&#39;s New | Rio Romeo" width="25%">
+<img src="https://i1.sndcdn.com/artworks-6uWmWCyntCHGksz9-GlqDQg-t500x500.jpg" alt="Listen to SALES - Renee (ZCKSMTH Remix) by ZCKSMTH in goin nutz playlist  online for free on SoundCloud" width="25%">
+<img src="https://i1.sndcdn.com/artworks-000136878751-1xnesj-t500x500.jpg" alt="Stream FANTASTIC PHANTASM by PengoSolvent | Listen online for free on  SoundCloud" width="25%">
+</p>
+<p align="center">
+<pre>                Nothing's New - Rio Romeo            Renee - Sales         Fantastic Phantasm - PengoSolvent</pre>
+</p>
+
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>To do</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
 <p align="center">
