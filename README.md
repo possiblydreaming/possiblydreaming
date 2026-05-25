@@ -140,7 +140,7 @@ Anyways, I'm more than happy to talk. I'll see you there! <img src="https://supp
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
 
-<p align="center>
+<p align="center">
 <img src="https://blinkies.crd.co/assets/images/gallery25/a4732b43.gif?v=f551d29f" alt="Untitled"/><img src="https://blinkies.crd.co/assets/images/gallery03/c55deaa6.gif?v=f551d29f" alt="Untitled"/><img src="https://oddityz.neocities.org/blinkies/pink/icecreamisevil.gif"/><img src="https://oddityz.neocities.org/blinkies/pink/sometimesijustwanttoscream.gif"/>
 <img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
 <img src="https://adriansblinkiecollection.neocities.org/g13.gif"/>
