@@ -76,8 +76,6 @@ Luna
     <td valign="middle">
 I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. Louis Wain is my inspiration, one of my favorite pieces from him is Blue Cat. My biggest goal is to build an art portfolio, and create an indie show whenever there's an opportunity.<br><br>
 
-Buuuutt.. I do have an unfinished art piece below that I'm working on right now. <details><summary><b>here!</b></summary><img width="587" height="421" alt="image" src="https://github.com/user-attachments/assets/a79e38e8-2c2b-4e71-8136-a787e3f75157" />
-
 When I’m not drawing, I’m usually sewing/crafting or/and adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
     </td>
   </tr>
