@@ -71,7 +71,9 @@ Luna
       <img src="https://media.tenor.com/I7K5vfzDLggAAAAM/akita-neru-akita.gif" width="200" alt="Description">
     </td>
     <td valign="middle">
-I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. Louis Wain is my inspiration, one of my favorite pieces from him is Blue Cat. My biggest goal is to build an art portfolio, and create an indie show whenever there's an opportunity. <br><br>
+I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. Louis Wain is my inspiration, one of my favorite pieces from him is Blue Cat. My biggest goal is to build an art portfolio, and create an indie show whenever there's an opportunity.<br><br>
+
+Buuuutt.. I do have an unfinished art piece below that I'm working on right now. <details><summary><b>here!</b></summary><img width="587" height="421" alt="image" src="https://github.com/user-attachments/assets/a79e38e8-2c2b-4e71-8136-a787e3f75157" />
 
 When I’m not drawing, I’m usually sewing/crafting or/and adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
     </td>
@@ -87,7 +89,7 @@ I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My favorite cha
 
 The Pokémon series/games, Dragon Ball, and the Stargate series are currently on my to watch/play list!
 
-Astronomy and coding are my special interests right now! I usually study and write about exo-planets and stars, even through telescopes that I had gotten for my birthdays (too bad I can't see exo-planets), which I also have four so far too! For coding, I've been doing it since 2022 and so far, I've been using those skills to create profiles whenever I'm bored, they're currently sitting in my private respositories.
+Coding is one of my favorite skill also since 2022! I'm currently working on a Roblox, RPG game on RPG maker since 2025.
     </td>
     <td>
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
