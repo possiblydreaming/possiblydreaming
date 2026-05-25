@@ -2,7 +2,7 @@
 5|18|26 . This page is still not done, but take a look! Thanks for checking my profile out!
 </p>
 <p align="center">
-5|24|26 . I'm also still decorating this page as of right now.
+5|25|26 . I'm also still decorating this page as of right now.
 </p>
 
 <p align="center">
