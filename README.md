@@ -120,5 +120,80 @@ Anyways, I'm more than happy to talk. I'll see you there! <img src="https://supp
 </p>
 
 <p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
+</p>
+
+<p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>To do</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
+<p align="center">
+
+* Make stamps/graphics for Neocities as resources for public use.
+
+* New profile picture.
+  - ~~Sketch~~
+  - Colors (50&)
+  - Finish
+
+* Art for introduction section and end of the profile.
+
+* Carrd profile.
+
+* Create an art commission sheet.
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
+</p>
+
+<p align="center>
+<img src="https://blinkies.crd.co/assets/images/gallery25/a4732b43.gif?v=f551d29f" alt="Untitled"/><img src="https://blinkies.crd.co/assets/images/gallery03/c55deaa6.gif?v=f551d29f" alt="Untitled"/><img src="https://oddityz.neocities.org/blinkies/pink/icecreamisevil.gif"/><img src="https://oddityz.neocities.org/blinkies/pink/sometimesijustwanttoscream.gif"/>
+<img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
+<img src="https://adriansblinkiecollection.neocities.org/g13.gif"/>
+<img src="https://graphic.neocities.org/huhh.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/animal/batmoon.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/candy2.gif"/>
+<img src="https://y2k.neocities.org/blinkiez/tumblr_p1yz3hCS6m1weku4wo6_250.gif"/>
+<img src="https://pixel-woods.neocities.org/images/blinkies/gloomybear.gif"/>
+<img src="https://loleah.neocities.org/graphics/blinkies/buddies.gif" alt="aj let&#39;s be buddies"/>
+<img src="https://petrapixel.neocities.org/assets/img/blinkies/blinkies/b%20(2).gif" alt="Blinkie: I love Glitter"/>
+<img src="https://blinkie-net.neocities.org/blinkies/8/Pizza.gif"/>
+<img src="https://blinkie-net.neocities.org/blinkies/11/s_kuromi.gif"/>
+<img src="https://pixelbank.neocities.org/blinkies/book_worm.gif"/>
+<img src="https://pixelbank.neocities.org/blinkies/irlraccoon.gif"/>
+<img src="https://pixelbank.neocities.org/blinkies/lpscollector.gif"/>
+<img src="https://drive.google.com/thumbnail?id=1-emIIGoqxNbbgLyL7bYjve4ByxMhSdoW" alt="blinkie"/>
+<img src="https://wowzow.neocities.org/blinkie/pearlieprincessontumblr06.gif"/>
+</p>
+
+<p align="center">
+<img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%"><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" alt="Untitled"/><img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%">
+</p>
+
+
+</p>
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/stamps/more/hottopic.gif"/> <img src="https://pixelsafari.neocities.org/stamps/mcr.png"/><img src="https://supplies.ju.mp/assets/images/gallery01/187e80cf.png?v=2e2c9a9d" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery02/3223634e.png?v=2e2c9a9d" alt="Untitled"/>
+<img src="https://oddityz.neocities.org/stamps/pink/ilovebows.png"/>
+<img src="https://oddityz.neocities.org/stamps/bw/pandaluv.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/icollectplushies.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/bunny9.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/ilovecrows.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/bunny6.gif"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_mr1k13DUYS1qz4rgp.png"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lbupjD71v11djx_1280.gif"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_pdtswyY1sp1wpplaao6_250.jpg"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif"/>
+<img src="https://pixel-woods.neocities.org/images/stamps/purplestar.png"/>
+<img src="https://futurefishy.neocities.org/assets/stamps/panda.png" alt="ikea baby panda teddy on abstract pink background stamp"/>
+<img src="https://cadeion.neocities.org/Assets/Other%20Stamps/25/lps.gif" alt="littlest pet shop logo next to a panda figure"/>
+<img src="https://cupcakesthebulldog.neocities.org/layout%20pics/Stamps/stamps/accat.gif" alt="Punchy gif stamp"/>
+<img src="https://blinkie-net.neocities.org/Stamps/Pp/strawberries.png"/>
+<img src="https://blinkie-net.neocities.org/Stamps/4/mnr.drach.png"/>
+<img src="https://blinkie-net.neocities.org/Stamps/8/Neapolitan.jpg"/>
+<img src="https://pixelbank.neocities.org/stamp/15.png"/>
+<img src="https://favicons.neocities.org/images/boxes/white%20moon.png"/>
+</p>
+
+<p align="center">
 Every graphic in this README.md should have their credits inside, but there may be some graphics will need a two-step to find their artists, such as navigating and checking the embedded links within the desired graphic in the origin site, depending on if the chosen site has not or had hot-linked their graphics.
 </p>
