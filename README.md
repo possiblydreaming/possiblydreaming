@@ -1,12 +1,9 @@
 <p align="center">
-5|18|26 . This page is still not done, but take a look! Thanks for checking my profile out!
+$\color{#9d5dc7}{\text{Check out my new profile after using my friend's for a while, sorry Karl, thanks Karl.}}$
 </p>
+<br>
 <p align="center">
-5|25|26 . I'm also still decorating this page as of right now.
-</p>
-
-<p align="center">
-This page is recommended for laptops/computers. For mobile users, try going on desktop mode in your settings!
+$\color{#be86e3}{\text{This page is recommended for laptops/computers. For mobile users, try going on desktop mode in your settings!}}$
 </p>
 <p align="center">
 <img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
@@ -16,7 +13,7 @@ This page is recommended for laptops/computers. For mobile users, try going on d
   (https://spottedpanda.atabook.org/) 
 </p>
 <p align="center">
-  Send me messages, even while anonymous! 
+$\color{#e3dd86}{\text{Send me messages, even while anonymous!}}$
   <img src="https://caitsith.neocities.org/gloomybear.gif"/><br><br>
   <img src="https://wowzow.neocities.org/misc/gif/gif0154.gif"/>
 </p>
@@ -24,7 +21,10 @@ This page is recommended for laptops/computers. For mobile users, try going on d
 
 <div align="center">
   <details>
-    <summary><b>Other socials!</b></summary>
+    <summary><b>
+     Other socials!
+    </b>
+    </summary>
     <br>
     (https://spottedpandaa.straw.page)</p>
     Send me messages and drawings as an anonymous user!
@@ -74,9 +74,10 @@ Luna
       <img src="https://media.tenor.com/I7K5vfzDLggAAAAM/akita-neru-akita.gif" width="200" alt="Description">
     </td>
     <td valign="middle">
-I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. Louis Wain is my inspiration, one of my favorite pieces from him is Blue Cat. My biggest goal is to build an art portfolio, and create an indie show whenever there's an opportunity.<br><br>
+I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. Louis Wain is my inspiration, one of my favorite pieces from him is Blue Cat. My biggest goal is to build an art portfolio, and create an indie show whenever there's an opportunity.
+      <br><br>
 
-When I’m not drawing, I’m usually sewing/crafting or/and adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
+When I’m not drawing, I’m usually sewing/crafting or/and adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies.
     </td>
   </tr>
 </table>
@@ -161,6 +162,7 @@ Anyways, I'm more than happy to talk. I'll see you there! <img src="https://supp
 <p align="center">
 <img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%"><img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=edffcd2f" alt="Untitled"/><img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled" width="20%">
 </p>
+
 
 
 </p>
