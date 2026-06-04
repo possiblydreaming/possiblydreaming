@@ -97,7 +97,9 @@ Coding is one of my favorite skill also since 2022! I'm currently working on a R
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
     </td>  </tr>
 </table>
-
+<p align="center">
+I'm not adding new friends at the time, but thank you so much for stopping by!
+</p>
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
@@ -105,14 +107,15 @@ Coding is one of my favorite skill also since 2022! I'm currently working on a R
 
 <img align="right" src="https://github.com/user-attachments/assets/2d73efcd-5f18-429a-a8e7-297f9443613e" alt="image" width="24%"/>
 
-I'm always below the cafe! Sometimes at the Spawn or inside the cafe.
 
-I'm mainly sometimes off.. (away status, +1 minute), or really busy (busy status, +7 minutes), expect late replies. Whispering me is preferred so I can get back to you easier.
-(But if you're curious about why I'm mainly off: I love baking.)
-<br><br>Friend requests are a-okay! As long as I know you.
-<br><br>I tend to disconnect due to connection issues, I don't leave out of the blue.
+$\color{#bcaabd}{\text{I'm always below the cafe! Sometimes at the Spawn or inside the cafe.}}$
 
-Anyways, I'm more than happy to talk. I'll see you there! <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
+$\color{#bcaabd}{\text{I'm mainly sometimes off.. (away status, +1 minute), or really busy (busy status, +7 minutes), expect late replies.}}$
+$\color{#bcaabd}{\text{Whispering me is preferred so I can get back to you easier. (But if you're curious about why I'm mainly off: I love baking.)}}$
+<br><br>$\color{#bcaabd}{\text{Friend requests are a-okay! As long as I know you and if my requests are open.}}$
+<br><br>$\color{#bcaabd}{\text{I tend to disconnect due to connection issues, I don't leave out of the blue.}}$
+
+$\color{#bcaabd}{\text{Anyways, I'm more than happy to talk. I'll see you there!}}$<img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
 
 <br><br><p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
