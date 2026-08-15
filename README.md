@@ -1,10 +1,8 @@
+
 <p align="center">
-$\color{#9d5dc7}{\text{Check out my new profile after using my friend's for a while, sorry Karl, thanks Karl.}}$
+  Thanks to those that had fixed some coding in the profile!
 </p>
-<br>
-<p align="center">
-$\color{#be86e3}{\text{This page is recommended for laptops/computers. For mobile users, try going on desktop mode in your settings!}}$
-</p>
+
 <p align="center">
 <img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
 </p>
@@ -29,14 +27,6 @@ $\color{#e3dd86}{\text{Send me messages, even while anonymous!}}$
     (https://spottedpandaa.straw.page)</p>
     Send me messages and drawings as an anonymous user!
   </p>
-
-<div align="center">
-  <br>
-    (https://x.com/Spottedpan35124)  </p>
-    Check out my art and future animations! (Unfortunately, there is nothing, but I'll be posting later!)
-  </p>
-    
-    
   </details>
 </div>
 
@@ -87,33 +77,29 @@ When I’m not drawing, I’m usually sewing/crafting or/and adding to my collec
 <table>
   <tr>
     <td valign="middle">
-I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, and I'm currently working on a Kuromi cosplay and so far, Gloomy Bear may be my next project pretty soon. <br><br>
+I'm currently in the Sanrio and The Last Unicorn fandom. My favorite characters are Kuromi, Maud Pie, and Gloomy Bear, and I'm currently working on a Kuromi cosplay and so far, Gloomy Bear may be my next project pretty soon. <br><br>
 
 The Pokémon series/games, Dragon Ball, and the Stargate series are currently on my to watch/play list!
-
-Coding is one of my favorite skill also since 2022! I'm currently working on a Roblox, RPG game on RPG maker since 2025.
     </td>
     <td>
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
     </td>  </tr>
 </table>
 <p align="center">
-I'm not adding new friends at the time, but thank you so much for stopping by!
+I'm not adding new friends at the time, but thank you so much for stopping by! 
 </p>
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
 
-<img align="right" src="https://github.com/user-attachments/assets/2d73efcd-5f18-429a-a8e7-297f9443613e" alt="image" width="24%"/>
+<img align="right" src="https://github.com/user-attachments/assets/2d73efcd-5f18-429a-a8e7-297f9443613e" alt="image" width="24%"/> </p>
 
 
-$\color{#bcaabd}{\text{I'm always below the cafe! Sometimes at the Spawn or inside the cafe.}}$
+$\color{#bcaabd}{\text{I'm always below the cafe! Sometimes at the Spawn or inside the cafe, maybe exploring somewhere else.}}$
 
 $\color{#bcaabd}{\text{I'm mainly sometimes off.. (away status, +1 minute), or really busy (busy status, +7 minutes), expect late replies.}}$
-$\color{#bcaabd}{\text{Whispering me is preferred so I can get back to you easier. (But if you're curious about why I'm mainly off: I love baking.)}}$
-<br><br>$\color{#bcaabd}{\text{Friend requests are a-okay! As long as I know you and if my requests are open.}}$
-<br><br>$\color{#bcaabd}{\text{I tend to disconnect due to connection issues, I don't leave out of the blue.}}$
+<br><br>$\color{#bcaabd}{\text{My friend list is reserved for close friends and for anyone I know offline.}}$
 
 $\color{#bcaabd}{\text{Anyways, I'm more than happy to talk. I'll see you there!}}$<img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
 
